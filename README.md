@@ -1,1 +1,1 @@
-# rsschool-cv
+https://CooKingBeast.github.io/rsschool-cv/cv
