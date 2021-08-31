@@ -1,1 +1,1 @@
-https://CooKingBeast.github.io/rsschool-cv/cv test
+https://CooKingBeast.github.io/rsschool-cv/cv
